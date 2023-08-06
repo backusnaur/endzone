@@ -170,6 +170,7 @@ Most links are for DeviantArt, but some entries cannot be found there anymore, e
 
 ## Semi-Final Intermission
 
+* [ENDZONE SE: P.S.A.](https://www.deviantart.com/thecrowchan/art/ENDZONE-SE-P-S-A-68215329)
 * [ENDZONE: Prelude to the End.](https://www.deviantart.com/endling/art/ENDZONE-Prelude-to-the-End-69798605)
 * [Climber: SE - Chimbley](https://www.deviantart.com/unknown-person/art/Endzone-SE-Chimbley-pt1-71771634)
 
