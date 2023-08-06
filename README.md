@@ -1,5 +1,11 @@
 # Endzone
 
+This is a directory of links relating to Endzone, an Original Character Tournament organized in 2007 by [Endling](https://www.deviantart.com/endling) on DeviantArt, taking place in the universe of his webcomic [Everafter](https://www.snafu-comics.com/ea/page-1).
+
+The list below includes the winning entries for each round of the tournament (currently focusing on the quarter-finalists, I will add more over time), as well as official announcements and extra materials posted by the participants between rounds. Winning entries for each round are listed in alphabetical order by the winner's name. Intermission entries are listed chronologically.
+
+Most links are for DeviantArt, but some entries cannot be found there anymore, either because they have been deleted or because they were submitted in Flash. I have added alternative links for those whenever I could find them somewhere else on the internet. In particular, all of the Flash entries for Climber are available as YouTube videos.
+
 ## Character Reference Sheets
 
 * [ENDZONE: Reference Sheets.](https://www.deviantart.com/endling/journal/ENDZONE-Reference-Sheets-240240428)
