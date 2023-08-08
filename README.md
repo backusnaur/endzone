@@ -30,6 +30,8 @@ Most links are for DeviantArt, but some entries cannot be found there anymore, e
 * Haai (missing)
 * Hazuki (missing)
 * [Hero](https://www.deviantart.com/carico/art/Hero-Profile-Referance-58585386)
+* Honeulind (missing)
+* Kayla Anancy [[1]](https://www.deviantart.com/sins-of-angels/art/Kayla-s-Picture-Board-58956889) [[2]](https://www.deviantart.com/sins-of-angels/art/Kayla-Colors-58956815)
 * [Kayla Crew](https://www.deviantart.com/lalallama/art/Kayla-reference-sheet-57515654)
 * [Kilojara](https://www.deviantart.com/kilo-monster/art/Endzone-Profile-58892489)
 * [Ko-omote](https://www.deviantart.com/mikiko-art/art/ENDZONE-Refsheet-Ko-Pinu-57677253)
@@ -37,10 +39,12 @@ Most links are for DeviantArt, but some entries cannot be found there anymore, e
 * Lhin (missing)
 * [Lucius](https://www.deviantart.com/nokomento/art/Character-Sheet-Lucius-58668639)
 * [Mal](https://www.deviantart.com/dire-musaera/art/Vellians-Mal-s-EZ-ref-58364480)
+* Marla (missing)
 * Minos [[1]](https://www.deviantart.com/bottleofpiss/art/Teh-Minos-Reference1-58902965) [[2]](https://www.deviantart.com/bottleofpiss/art/Teh-Minos-Reference2-58903235)
 * [NeverAsk](https://www.deviantart.com/oi1bob/art/NA-Girl-REF-58370160)
 * [Olga](https://www.deviantart.com/snargo/art/Olga-comp-refrence-58078474)
 * O.M.G. [[1]](https://www.deviantart.com/sebbythefreak/art/Failed-Audition-58731530) [[2]](https://www.deviantart.com/sebbythefreak/art/O-M-G-Reference-EDITED-58884342) [[3]](https://www.deviantart.com/sebbythefreak/art/ALTERNATE-OUTFIT-UNLOCK-61638200)
+* The Princess [[1]](https://www.deviantart.com/skylord/art/La-Princesse-OC-CharacterSheet-58956176) [[2]](https://www.deviantart.com/skylord/art/Huntsman-Concept-sketches-58959654)
 * [Rikyo](https://www.deviantart.com/rikyo/art/Rikyo-RefSheet-58951438)
 * Rmas (missing)
 * Ruenis [1] [[2]](https://www.deviantart.com/tomokii/art/To-Fly-High-55563232) [3] (missing 1 and 3)
@@ -50,6 +54,7 @@ Most links are for DeviantArt, but some entries cannot be found there anymore, e
 * [Shadoboxxer](https://www.deviantart.com/shadoboxxer/art/Shadoboxxer-Character-Sheet-58476394)
 * [Skye](https://www.deviantart.com/ma-stersolly/art/Design-Sheet-58813811)
 * [Uriel](https://www.deviantart.com/clairvoire/art/Uriel-Reference-Sheet-58917520)
+* Vapour (missing)
 * Washer Woman [[1]](https://www.deviantart.com/aimee5/art/Washer-woman-51056455) [[2]](https://www.deviantart.com/aimee5/art/Washer-woman-Reference-Sheet-58889019)
 
 ## Audition
@@ -76,6 +81,8 @@ Most links are for DeviantArt, but some entries cannot be found there anymore, e
 * Haai (missing)
 * Hazuki (missing)
 * [Hero](https://www.deviantart.com/carico/art/ENDZONE-Hero-Audition-58516440)
+* Honeulind (missing)
+* [Kayla Anancy](https://www.deviantart.com/sins-of-angels/art/Kayla-Meets-Big-Bad-58798944)
 * [Kayla Crew](https://www.deviantart.com/lalallama/art/Endzone-Audition-Comic-57958024)
 * [Kilojara](https://www.deviantart.com/kilo-monster/art/Endzone-Audition-58710030)
 * [Ko-omote](https://www.deviantart.com/mikiko-art/art/ENDZONE-Ko-omote-Audition-57305514)
@@ -83,10 +90,12 @@ Most links are for DeviantArt, but some entries cannot be found there anymore, e
 * Lhin (missing)
 * [Lucius](https://www.deviantart.com/nokomento/art/Endzone-OC-tournament-audition-58466704)
 * [Mal](https://www.deviantart.com/dire-musaera/art/Endzone-Entry-Mal-vs-Big-Bad-57473481)
+* Marla (missing)
 * [Minos](https://www.deviantart.com/bottleofpiss/art/endzone-audition-page-one-58226505)
 * [NeverAsk](https://www.deviantart.com/oi1bob/art/ENDZONE-NA-Audition-57774197)
 * [Olga](https://www.deviantart.com/snargo/art/Recruiting-Olga-57848165)
 * [O.M.G.](https://www.deviantart.com/sebbythefreak/art/ENDZONE-AUDITION-music-58738413) (missing - Flash submission)
+* [The Princess](https://www.deviantart.com/skylord/art/A-Thousand-Words-Endzone-58758911)
 * [Rikyo](https://www.deviantart.com/rikyo/art/ENDZONE-auditon-58803329)
 * Rmas (missing)
 * [Ryota Shigure](https://www.deviantart.com/roninsultramix/art/Endzone-Entry-58706290)
@@ -95,23 +104,34 @@ Most links are for DeviantArt, but some entries cannot be found there anymore, e
 * [Shadoboxxer](https://www.deviantart.com/shadoboxxer/art/Endling-OC-Battle-Invite-1-58537339)
 * [Skye](https://www.deviantart.com/ma-stersolly/art/Page-0-58796198)
 * [Uriel](https://www.deviantart.com/clairvoire/art/ENDZONE-wingsitinthedoor-58789533)
+* Vapour (missing)
+* [Washer Woman](https://www.deviantart.com/aimee5/art/Endzone-Tournament-58628214)
 
 ## Prologue
 
 * [Climber: entering Everafter](https://www.deviantart.com/unknown-person/art/Endzone-entering-Everafter-58944751)
+* [Washer Woman: WW gets a job](https://www.deviantart.com/aimee5/art/Endzone-WW-gets-a-job-59929215)
+* [Washer Woman: Prequel to Battle](https://www.deviantart.com/aimee5/art/Endzone-Prequel-to-Battle-59929357)
 
 ## Round One
 
 * [ENDZONE: Round One!](https://www.deviantart.com/endling/journal/ENDZONE-Round-One-240234136)
 * [ENDZONE: Round One RESULTS.](https://www.deviantart.com/endling/journal/ENDZONE-Round-One-RESULTS-240105396)
+* Ahoy vs. ? (missing)
+* Bunny Bunny vs. ? (missing)
+* [Cain Draka vs. Vapour](https://www.deviantart.com/caindraka/art/Endzone-Cain-vs-Vapour-part1-60042415)
 * The Chimbley Sweep vs. Minos (missing)
 * [Climber vs. Barrington](https://www.deviantart.com/unknown-person/art/Endzone-vs-Barrington-pt-1-59893208)
 * [Dood Palette vs. Doombot](https://www.deviantart.com/lan-kun/art/ENDZONE-round-1-Dood-vs-Doom-60029863)
 * [Grampy vs. Lucius](https://www.deviantart.com/effenndee/art/Endzone-Grampy-vs-Lucius-Prt-1-60005455)
+* [Kayla Crew vs. Honeulind](https://www.deviantart.com/lalallama/art/Endzone-Round-1-part-1-59970091)
 * [Ko-omote vs. NeverAsk](https://www.deviantart.com/mikiko-art/art/ENDZONE-1-Intro-59231646)
+* [Olga vs. Marla](https://www.deviantart.com/snargo/art/Tournament-submission-part1-59905444)
 * [Rikyo vs. Uriel](https://www.deviantart.com/rikyo/art/Endzone-AinE-Chapter-1-60011376)
+* [Sanaril vs. The Princess](https://www.deviantart.com/sanaril/art/Endzone-1-1-59852480)
 * [Mr. Seles vs. Haai](https://www.deviantart.com/captrosko/art/Endzone-Mr-Seles-vs-Haai-pt-1-59887508)
 * [Skye vs. Ryota Shigure](https://www.deviantart.com/ma-stersolly/art/ENDZONE-Round-1-60047627)
+* [Washer Woman vs. Kayla Anancy](https://www.deviantart.com/aimee5/art/Endzone-Round-1-WW-vs-Kayla-59929557)
 
 ## Round One Intermission
 
